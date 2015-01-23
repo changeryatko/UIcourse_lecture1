@@ -6,4 +6,4 @@ Choose what hat you want to wear more than others (Allen Rabinovich: The Many Ha
 https://www.youtube.com/watch?v=rDRr_pUl3i0)
 
 
-...
+...I'm thinking
