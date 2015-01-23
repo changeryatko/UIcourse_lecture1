@@ -6,4 +6,4 @@ Choose what hat you want to wear more than others (Allen Rabinovich: The Many Ha
 https://www.youtube.com/watch?v=rDRr_pUl3i0)
 
 
-...so, I think want to wear Engineer hat most of all. That is why I'm here at this courses. In future I need to try all of this hats and of course Futurist hat, some day.  
+...well, I think want to wear Engineer hat most of all. That is why I'm here at this courses. In future I need to try all of this hats and of course Futurist hat, some day.  
